@@ -1,4 +1,4 @@
-# Curr-culo-Executivo-para-Investidores-e-Financiamentos
+# Currículo-Executivo-para-Investidores-e-Financiamentos
 Currículo executivo  estratégico focado em demonstrar minha trajetória profissional, conquistas acadêmicas com a finalidade de conseguir financiamento para meu projeto.
 criar um currículo ATS Friendly para investidores e Sebrae, mas preciso das suas informações para personalizá-lo.
 
